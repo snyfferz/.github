@@ -1,3 +1,3 @@
 # Welcome 
 
-![](https://media.giphy.com/media/Jip7iqVOWQuH7c8AIo/giphy.gif)
+![](https://i.postimg.cc/YCVDn7hc/image.png)
