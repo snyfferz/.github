@@ -1,1 +1,3 @@
-# .github
+# CompanyGoals 
+
+> These are it 
